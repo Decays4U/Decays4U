@@ -19,7 +19,8 @@
 <p align="center"><strong>People who can’t separate fiction from reality
 <p align="center"><strong>Drama farmers, call-out culture enjoyers⠀
 <p align="center"><strong>
-<p align="center">INT (Interact If…)
+  <p align="center"><strong>⏝꒷︶ ͡𑁬⁠♡໒ ͡ ︶꒷⏝
+<p align="center">INT (INTERACT IF)
 
 <p align="center"><strong>Tomura Shigaraki enjoyers (all arcs, including messy ones)
 <p align="center"><strong>Villain POV lovers
