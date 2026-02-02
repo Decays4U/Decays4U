@@ -8,7 +8,8 @@
 </p>
 </p>
 </p>
-<a href="https://imgbb.com/"><img src="https://i.ibb.co/60934YF2/image-removebg-preview.png" alt="image removebg preview" border="0"></a>
+<p align="center">
+  <a href="https://imgbb.com/"><img src="https://i.ibb.co/F4XRL8SF/image-removebg-preview-3.png" alt="image removebg preview (3)" border="0"></a>
 <p align="center"><strong>⏝꒷︶ ͡𑁬⁠♡໒ ͡ ︶꒷⏝
 <p align="center"><strong>STRONG DNI IF YOU ARE :
 <p align="center"><strong>Proshippers / anti-anti discourse people
