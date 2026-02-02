@@ -19,7 +19,18 @@
 <p align="center"><strong>People who can’t separate fiction from reality
 <p align="center"><strong>Drama farmers, call-out culture enjoyers⠀
 <p align="center"><strong>
-<p align="center">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⡀⣠⡶⠒⠀⠀
+<p align="center">INT (Interact If…)
+
+<p align="center"><strong>Tomura Shigaraki enjoyers (all arcs, including messy ones)
+<p align="center"><strong>Villain POV lovers
+<p align="center"><strong>Dark themes handled with nuance
+<p align="center"><strong>Psychological horror / decay symbolism fans
+<p align="center"><strong>“Ruinous but meaningful” dynamics
+<p align="center"><strong>Character studies & meta writers
+<p align="center"><strong>Angst, corruption arcs, slow descent
+<p align="center"><strong>Respectful AUs and canon divergence
+<p align="center"><strong>You understand that liking villains ≠ endorsing them
+<p align="center"><strong>You can sit with discomfort instead of sanitizing it⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⡀⣠⡶⠒⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢀⣴⡶⠿⠁⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠞⠁⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⣀⣠⣴⣾⣿⣿⣿⣿⡿⠿⠛⠋⠁⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
