@@ -5,6 +5,7 @@
 <p align="center"><strong>🪚∘˙ˏ🥩.ᐟ 彡๑ </strong></p>
 <p align="center"><strong>𓆩♱𓆪    He/Him ; Masc - Queer </strong></p>
 <p align="center"><strong>𓆩♱𓆪   Young adult - Married </strong></p>
+<p align="center"><strong>STRONG DNI IF :
 <p align="center"><strong>Proshippers / anti-anti discourse people
 Minors (no exceptions)
 Ship shaming / character purity police
