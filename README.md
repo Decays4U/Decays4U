@@ -5,6 +5,13 @@
 <p align="center"><strong>🪚∘˙ˏ🥩.ᐟ 彡๑ </strong></p>
 <p align="center"><strong>𓆩♱𓆪    He/Him ; Masc - Queer </strong></p>
 <p align="center"><strong>𓆩♱𓆪   Young adult - Married </strong></p>
+<p align="center"><strong>Proshippers / anti-anti discourse people
+Minors (no exceptions)
+Ship shaming / character purity police
+Canon nitpickers who can’t let others have fun
+People who can’t separate fiction from reality
+Drama farmers, call-out culture enjoyers⠀
+<p align="center"><strong>
 <p align="center">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⡀⣠⡶⠒⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢀⣴⡶⠿⠁⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠞⠁⠀⠀⠀⠀⠀⠀⠀
